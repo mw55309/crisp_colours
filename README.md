@@ -10,4 +10,4 @@ Also known as chips in strange countries.  A global standard for crisp/chip pack
 * White - salt 'n' shake
 * Purple - Worcester sauce
 
-Scampi fries, doritos (and variants) and any kind of corn product _are not crisps_ therefoe do not count.
+Scampi fries, doritos (and variants) and any kind of corn product _are not crisps_ therefore do not count.
